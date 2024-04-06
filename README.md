@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Python ,Power BI**
 
-- 📫 How to reach me **kpkolte2001@gmail.com**
+- 📫 How to reach me **komalkolte27@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
